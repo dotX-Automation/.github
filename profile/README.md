@@ -1,3 +1,3 @@
 # dotX Automation
 
-UNDER CONSTRUCTION
+[Sense. Think. Move.](www.dotxautomation.com)
